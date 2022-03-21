@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Xiaoyu-JIANG
+- 👋 Hi, I’m Xiaoyu Jiang
 - 👀 I’m interested in granular material
 - 📫 xiaoxiao0129jp@gmail.com
 
